@@ -1,4 +1,13 @@
-- 👋 Hi, I’m @QbZn
+- 👋 Hi, I’m @QbZn 
+@Qeem
+@Qeen
+@Qbm
+@QQ
+Sony Qbm
+Sony Qeen
+Sony QQ
+Sony Qeem
+
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
